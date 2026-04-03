@@ -1,1 +1,0 @@
-# mop-partners.github.io
